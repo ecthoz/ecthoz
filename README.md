@@ -7,7 +7,7 @@ Brock or Echo, skin names are fine too <br/> https://en.pronouns.page/@ohce
 
 c+h is fine during appropriate times, just read the tone <br/> do not copy or take inspo unless given permission
 
-![help](https://64.media.tumblr.com/d279ef8cbe42abfee6e6ccc2b85d4714/7a4056f3e3ed25f3-b3/s100x200/f327510ff85bd18f034a50c04b4b02496786ca7b.gifv)<br/>
+![help](https://64.media.tumblr.com/6faac769c9c361b6d39f86854d375096/ac2d1016cc2f5479-82/s2048x3072/28fdcfa0589a934dc6a39791d4e7a09b305cdb56.pnj)<br/>
 
 **Do Not Interact.**
 
