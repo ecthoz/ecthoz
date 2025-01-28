@@ -19,6 +19,6 @@ stans of ANY media and online friends 2023> are on thin ice
 
  **Before You Interact.**
 
-i do make harsh and or offensive jokes (hide me if you dont like it), <br/> im extremely prone to moodswings/drops, i do not and will not use tone tags ever
+i do make harsh and or offensive jokes (hide me if you dont like it), <br/> im extremely prone to moodswings/drops, i do not and will not use tone tags ever, <br/> im really protective over my interests
 
 ![help](https://64.media.tumblr.com/1f99a99a2f69eb11744f6fc8aee676bb/67ef60f3b6afafa4-46/s1280x1920/727b78c65c1a79a4869ef662a13fc0faad5530b6.gifv)<br/>
