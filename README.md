@@ -1,1 +1,1 @@
-idk how to do these and it makes me sad
+1[](https://media.discordapp.net/attachments/906579001164828725/1323223032327573527/IMG_3262-removebg-preview.png?ex=67994dbb&is=6797fc3b&hm=e1ff5d531a03e39ca192ceeb414297c9ecf4b3247d961b5c148f6bf31197a106&=&format=webp&quality=lossless)
