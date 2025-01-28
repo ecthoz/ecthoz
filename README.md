@@ -1,3 +1,3 @@
 <div align="center">
 
-![help](https://media.discordapp.net/attachments/906579001164828725/1307620894662725683/9luH35dcqf8XSr3VLDAFMsMAAAAASUVORK5CYII.png?ex=6799e45b&is=679892db&hm=e5dfb5817f49745ce85c3826c5461e5280c040a6996e4460c134ab641e25592c&=&format=webp&quality=lossless)<br/>
+![help](https://64.media.tumblr.com/ff52c793a9dc994c2cdda937fc814733/67ef60f3b6afafa4-30/s1280x1920/38151a279fc0ed1bb7b2d9fb86733546d287cc87.gifv)<br/>
