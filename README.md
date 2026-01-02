@@ -1,6 +1,6 @@
 &nbsp;<div align="center">
 
-![](https://media.discordapp.net/attachments/906579001164828725/1456093866108256338/yXQ4EgAAAAZJREFUAwC8caqu0XNCpwAAAABJRU5ErkJggg.png?ex=69571c96&is=6955cb16&hm=89c6e7850e8e8de44b13ccb384415c7857cefaf54a3ab048a4f072b020831e86&=&format=webp&quality=lossless)
+![](https://media.discordapp.net/attachments/906579001164828725/1456083022343311563/eVmyAAAAABklEQVQDAGsmSVeyMRElAAAAAElFTkSuQmCC.png?ex=6957bb3d&is=695669bd&hm=3ee1b0da2b7855325daf88590c237d1b8ae5217605ef01a1c9c94a2ba1f38af1&=&format=webp&quality=lossless)
 
 
 <img width="700" height="50" alt="17614012264308391649848983025334" src="https://media.discordapp.net/attachments/906579001164828725/1456147348571951144/783fecAAAAGSURBVAMAYQWZqqWzQkYAAAAASUVORK5CYII.png?ex=69574e65&is=6955fce5&hm=4ac94d0658f03120087b0d7e9b6653df485fc70dc6be5e0ea24052f1811d98c5&=&format=webp&quality=lossless&width=1206&height=177">
