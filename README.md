@@ -3,7 +3,6 @@
 <img width="200" height="500" alt="17614012264308391649848983025334" src="https://media.discordapp.net/attachments/906579001164828725/1456500211752112189/xaXCLUAAAAGSURBVAMAA1KwE6uU0TgAAAAASUVORK5CYII.png?ex=69593fc6&is=6957ee46&hm=4a139a4a7f539ec5a8085cbed0d8680219246ca6d37f3990eafabcd095e463a7&=&format=webp&quality=lossless&width=347&height=562">
 
 
-୨୧‿̥̣‿̣̥̣̇‿̥̣୨୧‿̥̣‿̣̥̣̇‿̥̣୨୧‿̥̣‿̣̥̣̇‿̥̣୨୧ 
  </div>
 
 &nbsp;<div align="center">
@@ -16,9 +15,6 @@ Baby 　 goodnight.
 　　　　　 　 　　　 ⌢⌢ 　 　♡ 　
 
 &nbsp;<div align="center">
-
-
- </div>
 
 16 　 　usually offtab so w2i 　 　 c+h is okay
 
