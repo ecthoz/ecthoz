@@ -27,11 +27,15 @@ Baby 　 goodnight.
 
 &nbsp;<div align="center">
 
-16　　any pronouns
+16　　echo or tabi
 
-tord fictionkin　　c+h is okay
+pony or kin names r fine too
 
-do not copy　　 ask for inspo
+   　 　
+
+any pronouns　　c+h is okay
+
+c+h is okay　　 dnc 　　 w2i
 
 </div>
          
