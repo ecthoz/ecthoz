@@ -38,7 +38,10 @@ any pronouns　　c+h is okay
 c+h is okay　　 dnc 　　 w2i
 
 </div>
+
          
+   　 　
+
 <p align="center">
  
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
@@ -70,6 +73,5 @@ really shit memory
  
 [art creds to my favourite person](https://github.com/killbones)
 
-
-
+![](https://files.catbox.moe/izuaz4.gifv)
 </div>
