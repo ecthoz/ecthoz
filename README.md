@@ -28,6 +28,10 @@
  
 <sub> my special interests are eddsworld, hockey, bigbang, and mcyt
 
+<sub> and my [bestfriend ever ever](https://github.com/killbones)
+
+<img src="https://64.media.tumblr.com/4694a4e499227f6a7be866916942e043/ea5d9e7e2702987f-d5/s100x200/6fc0fcd26dde0667172e3e8da126a4d9b623b092.pnj" width="104" height="104"> 
+
 &nbsp;<div align="center">
 
 ...
@@ -42,7 +46,7 @@
 
  &nbsp;<div align="left">
 
- <sub> ㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it so personally if i hide you for doing so.
+ <sub> ㅤㅤㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it personally if i hide you for doing so
    
 
 &nbsp;<div align="right"> 
