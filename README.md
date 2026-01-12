@@ -24,16 +24,12 @@
   </a>
 </p>
 
-&nbsp;<div align="center">
- 
-<sub> my special interests are eddsworld, hockey, bigbang, and mcyt
 
-<sub> and my [bestfriend ever ever](https://github.com/killbones)
+&nbsp;<div align="center"> 
 
-<img src="https://64.media.tumblr.com/4694a4e499227f6a7be866916942e043/ea5d9e7e2702987f-d5/s100x200/6fc0fcd26dde0667172e3e8da126a4d9b623b092.pnj" width="104" height="104"> 
 
-&nbsp;<div align="center">
-
+<img src="https://64.media.tumblr.com/ecde5939ac0a0cdf4bc58100728457ce/50deda7e1df164e1-0d/s100x200/2848222acd4735b4c363cde42a47a54d6ef69a5a.gifv" width="104" height="104">
+</p>
 ...
 
 </p>
@@ -47,13 +43,25 @@
  &nbsp;<div align="left">
 
  <sub> ㅤㅤㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it personally if i hide you for doing so
-   
 
 &nbsp;<div align="center"> 
 
 <img src="https://64.media.tumblr.com/95713d461bc9beca9f73eb392c538de9/bc0a158009c87c2d-8f/s250x400/5f8dd18510dea72e362035d5317594bebfb2dcc9.gifv" width="104" height="104">
 
 </p>
+
+...
+
+</p>
+   
+&nbsp;<div align="center">
+ 
+<sub> my special interests are eddsworld, hockey, bigbang, and mcyt
+
+<sub> and my [bestfriend ever ever](https://github.com/killbones)
+
+<img src="https://64.media.tumblr.com/4694a4e499227f6a7be866916942e043/ea5d9e7e2702987f-d5/s100x200/6fc0fcd26dde0667172e3e8da126a4d9b623b092.pnj" width="104" height="104"> 
+
 
 &nbsp;<div align="center">
 
