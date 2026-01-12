@@ -37,12 +37,12 @@
 &nbsp;<div align="left">
 
 <sub> ㅤㅤㅤㅤtord fictionkin. ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ
-<sub> <sub> i'm extremely uncomfortable with WEIRD doubles,
+<sub> i'm extremely uncomfortable with WEIRD doubles,
  thirsters, self-shippers, and those who severely mischaracterize him. 
 
  &nbsp;<div align="left">
 
- <sub> ㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub> <sub> i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it so personally if i hide you for doing so.
+ <sub> ㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub>  i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it so personally if i hide you for doing so.
    
 
 &nbsp;<div align="right"> 
