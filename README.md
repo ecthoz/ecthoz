@@ -49,12 +49,10 @@
  <sub> ㅤㅤㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it personally if i hide you for doing so
    
 
-&nbsp;<div align="right"> 
+&nbsp;<div align="center"> 
 
 <img src="https://64.media.tumblr.com/bede51b12c57730706086736c0799d59/d79b386dd434d7d8-3d/s100x200/6d04ab4ed8b39d3c36a4b53d65d8bd132b5f9904.pnj" width="104" height="104"> 
-
 <img src="https://64.media.tumblr.com/d3e9da4bf128a30c83f73dceaabd54e6/3c74d06b377fdc9b-9b/s250x400/a7e1fcb1424dcf884adb3ec3f21fec51211ee471.gifv" width="104" height="104"> <img src="https://64.media.tumblr.com/66be78981d48a18392116c3fa952fca8/5732e589548c1c67-e1/s100x200/be997d5173da32608fe599b3487a99f86d03ac10.gifv" width="115" height="115">
-
 <img src="https://64.media.tumblr.com/e4998f7a3a7b488246f8f4a54f1d8cc9/5732e589548c1c67-17/s100x200/ae0f443f7c38fb0a289ef5f8b84c97ae24d1f9f3.jpg" width="104" height="104">  <img src="https://64.media.tumblr.com/dec7657fa1a7a01c5298aaca9cd0e4ea/851a1ef7d7001340-bd/s100x200/1f60c153c33bdd541414d8f4cc2a4bff24dafb1f.pnj" width="115" height="115"> <img src="https://64.media.tumblr.com/f789896ee6284e4d6dcc8c4ad29d4bb2/74ba818371e51c69-81/s250x400/68dd41d5837e6128e025469e7b6c31265d45ae37.gifv" width="100" height="100">
 
 <img src="https://64.media.tumblr.com/8dfc7ea1189c42c7e12289af3155faeb/2a25a5e1abd64440-6b/s250x400/fcdcb3167863c1238654d004c09b35bc8c32eea9.gifv" width="175"  height="175"> <img src="https://64.media.tumblr.com/6756085300ae930c9e78f36c37cda35e/66f8bee48421ca35-90/s250x400/80ae5653d4aaedab1daca3940bd25b63f994c7cc.gifv" width="175"> <img src="https://64.media.tumblr.com/8b648db6313933645ec8940a36b2d6c5/8663bf0ad9ab6c9d-8b/s250x400/b608e79ad388363648b388286cce85c31fea2626.gifv" width="175">
