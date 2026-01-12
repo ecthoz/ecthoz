@@ -27,11 +27,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e0555b&bar_color_cover=false">
   </a>
 </p>
-
-
-
 ...
-
 </p>
 
 &nbsp;<div align="center">
