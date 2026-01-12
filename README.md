@@ -1,77 +1,61 @@
 
 &nbsp;<div align="center">
 
- ![](https://komarev.com/ghpvc/?username=ecthoz&color=E0555B&label=🫀)
 
-
-
-&nbsp;<div align="center">
-
-<img width="200" height="500" alt="17614012264308391649848983025334" src="https://files.catbox.moe/en88r0.png">
 
 
 
 &nbsp;<div align="center">
 
+<img width="200" height="500" alt="17614012264308391649848983025334" src="https://files.catbox.moe/yr63d6.png">
 
-　　　　ᵀᵉˢ ʸᵉᵘˣ ᶠᵉʳᵐéˢ, ᵗᵒⁿ ᵒᵈᵉᵘʳ
+ ![](https://komarev.com/ghpvc/?username=ecthoz&color=B94826&label=)
 
-Baby 　 goodnight.
+<sub> tabi or echo　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+16yo　　　kin names r fine too
+
+<sub> c+h is okay　　　dnc & w2i
 
 　　　　　 　 　　　 ⌢⌢ 　 　♡ 　
+           
 
-&nbsp;<div align="center">
-
-<img width="300" height="200" alt="17614012264308391649848983025334" src="https://pix.crd.co/assets/images/gallery22/277a09a6_original.png?v=c10c78ee">
-
-
-&nbsp;<div align="center">
-
-16　　echo or tabi
-
-pony or kin names r fine too
-
-   　 　
-
-any pronouns　　c+h is okay
-
-dnc 　　 w2i
-
-</div>
-
-         
-   　 　
-
-<p align="center">
- 
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e0555b&bar_color_cover=false">
   </a>
 </p>
 
-</div>
+&nbsp;<div align="center">
+ 
+<sub> my special interests are eddsworld, hockey, bigbang, and mcyt
 
 &nbsp;<div align="center">
 
-<p align="center">
-  <img width="150" height="250" alt="17614012264308391649848983025334" src="https://files.catbox.moe/gvk6ew.png">
- 
 ...
+
 </p>
- 
- <p align="left">
-ㅤㅤㅤㅤtord fictionkin.ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi'm extremely uncomfortable with WEIRD doubles, ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthirsters, self-shippers, and those who severely mischaracterize him. 
-&nbsp;<div align="right"ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi hate when people talk about injuries with any of their limbs.ㅤㅤㅤㅤㅤㅤㅤㅤ please do not take it so personally if i hide you for doing so
+&nbsp;<div align="left">
 
-<p align="left">
-really shit memory
- 
+<sub> ㅤㅤㅤㅤtord fictionkin. ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤ
+<sub> <sub> i'm extremely uncomfortable with WEIRD doubles,
+ thirsters, self-shippers, and those who severely mischaracterize him. 
 
-&nbsp;<div align="right">
- 
-[art creds to my favourite person](https://github.com/killbones)
+ &nbsp;<div align="left">
 
-![](https://files.catbox.moe/izuaz4.gifv)
-</div>
+ <sub> ㅤㅤㅤㅤㅤdiagnosed w/ severe kinesiophobia from a traumatic injury. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<sub> <sub> i really hate when people talk about injuries that occured to any of their limbs. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not take it so personally if i hide you for doing so.
+   
+
+&nbsp;<div align="right"> 
+
+<img src="https://64.media.tumblr.com/bede51b12c57730706086736c0799d59/d79b386dd434d7d8-3d/s100x200/6d04ab4ed8b39d3c36a4b53d65d8bd132b5f9904.pnj" width="104" height="104"> 
+
+<img src="https://64.media.tumblr.com/d3e9da4bf128a30c83f73dceaabd54e6/3c74d06b377fdc9b-9b/s250x400/a7e1fcb1424dcf884adb3ec3f21fec51211ee471.gifv" width="104" height="104"> <img src="https://64.media.tumblr.com/66be78981d48a18392116c3fa952fca8/5732e589548c1c67-e1/s100x200/be997d5173da32608fe599b3487a99f86d03ac10.gifv" width="115" height="115">
+
+<img src="https://64.media.tumblr.com/e4998f7a3a7b488246f8f4a54f1d8cc9/5732e589548c1c67-17/s100x200/ae0f443f7c38fb0a289ef5f8b84c97ae24d1f9f3.jpg" width="104" height="104">  <img src="https://64.media.tumblr.com/dec7657fa1a7a01c5298aaca9cd0e4ea/851a1ef7d7001340-bd/s100x200/1f60c153c33bdd541414d8f4cc2a4bff24dafb1f.pnj" width="115" height="115"> <img src="https://64.media.tumblr.com/f789896ee6284e4d6dcc8c4ad29d4bb2/74ba818371e51c69-81/s250x400/68dd41d5837e6128e025469e7b6c31265d45ae37.gifv" width="100" height="100">
+
+<img src="https://64.media.tumblr.com/8dfc7ea1189c42c7e12289af3155faeb/2a25a5e1abd64440-6b/s250x400/fcdcb3167863c1238654d004c09b35bc8c32eea9.gifv" width="175"  height="175"> <img src="https://64.media.tumblr.com/6756085300ae930c9e78f36c37cda35e/66f8bee48421ca35-90/s250x400/80ae5653d4aaedab1daca3940bd25b63f994c7cc.gifv" width="175"> <img src="https://64.media.tumblr.com/8b648db6313933645ec8940a36b2d6c5/8663bf0ad9ab6c9d-8b/s250x400/b608e79ad388363648b388286cce85c31fea2626.gifv" width="175">
+
+
+<img src="https://64.media.tumblr.com/91e25255cc076391561a3c0a4cf4b7e6/8fdbda514376b98f-f6/s250x400/7d9d731b9e3df94f5e5ed582f6fc6c8f85b61220.gifv" width="175" height="175"> <img src="https://blinkies.cafe/b/display/0186-angelsmiley.gif" width="175" height="175"> 
+
+<img src="https://64.media.tumblr.com/b533d2107d84360b12c02d2c0b994ee2/b035b516dc88dd13-85/s250x400/a85beb2a4a7fffe4eb1fe91c44e70f9c7705c67c.gifv" width="175"> 
