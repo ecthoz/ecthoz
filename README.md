@@ -15,6 +15,8 @@
 &nbsp;<div align="center">
  
 　　[read](https://rentry.co/seabiscuits)　　　 　 　　　 ⌢⌢ 　 　♡ 　
+
+  &nbsp;<div align="center">
   
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e0555b&bar_color_cover=false">
