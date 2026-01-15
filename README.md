@@ -7,7 +7,7 @@
 
 &nbsp;<div align="center">
 
-<img width="200" height="500" alt="17614012264308391649848983025334" src="https://files.catbox.moe/yr63d6.png">
+<img width="350" height="500" alt="17614012264308391649848983025334" src="https://files.catbox.moe/l16o8a.png">
 
  ![](https://komarev.com/ghpvc/?username=ecthoz&color=B94826&label=)
 
