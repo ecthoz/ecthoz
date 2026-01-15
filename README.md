@@ -16,17 +16,11 @@
  
 　　[read](https://rentry.co/seabiscuits)　　　 　 　　　 ⌢⌢ 　 　♡ 　
   
-<img src="https://64.media.tumblr.com/ecde5939ac0a0cdf4bc58100728457ce/50deda7e1df164e1-0d/s100x200/2848222acd4735b4c363cde42a47a54d6ef69a5a.gifv" width="104" height="104">
-</p>
- 
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e0555b&bar_color_cover=false">
   </a>
 </p>
-...
-</p>
-
-&nbsp;<div align="center">
+<img src="https://64.media.tumblr.com/ecde5939ac0a0cdf4bc58100728457ce/50deda7e1df164e1-0d/s100x200/2848222acd4735b4c363cde42a47a54d6ef69a5a.gifv" width="104" height="104">
  
 <sub> my special interests are eddsworld, hockey, bigbang, and mcyt
 
