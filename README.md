@@ -1,10 +1,6 @@
 
 &nbsp;<div align="center">
 
-
-
-
-
 &nbsp;<div align="center">
 
 <img width="350" height="500" alt="17614012264308391649848983025334" src="https://files.catbox.moe/l16o8a.png">
