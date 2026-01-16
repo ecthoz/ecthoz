@@ -12,10 +12,6 @@
 
 <sub> c+h is okay　　　dnc & w2i
 
-&nbsp;<div align="center">
- 
-　　[read](https://rentry.co/seabiscuits)　　　 　 　　　 ⌢⌢ 　 　♡ 　
-
   &nbsp;<div align="center">
   
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
