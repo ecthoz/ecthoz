@@ -21,4 +21,4 @@
  
 <sub> i really like BIGBANG, eddsworld, and hockey
 
-<sub> and my [bestfriend ever ever](https://github.com/killbones)
+<sub> and my pretty [shell](https://github.com/killbones) ![](https://64.media.tumblr.com/cd7286ebc3572c8d55f5cc1b38f965d2/02f15474260aaca2-6f/s100x200/95802df1164e7e9a694efeee972c0d5109ac980f.gifv)
