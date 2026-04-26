@@ -3,7 +3,7 @@
 
 &nbsp;<div align="center">
 
-<img width="350" height="500" alt="17614012264308391649848983025334" src="https://files.catbox.moe/l16o8a.png">
+<img width="350" height="350" alt="17614012264308391649848983025334" src="https://files.catbox.moe/l16o8a.png">
 
  ![](https://komarev.com/ghpvc/?username=ecthoz&color=B94826&label=)
 
@@ -20,7 +20,7 @@
 </p>
 <img src="https://64.media.tumblr.com/ecde5939ac0a0cdf4bc58100728457ce/50deda7e1df164e1-0d/s100x200/2848222acd4735b4c363cde42a47a54d6ef69a5a.gifv" width="104" height="104">
  
-<sub> my special interests are eddsworld, hockey, bigbang, and mcyt
+<sub> i really like eddsworld, hockey, bigbang, and mcyt
 
 <sub> and my [bestfriend ever ever](https://github.com/killbones)
 
