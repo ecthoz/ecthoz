@@ -31,7 +31,7 @@
   ‎         ‎       ‎        ‎      <sub> ‎ or Echo <img src="https://64.media.tumblr.com/edc5bd1dbee7f914a11ca395b8aded24/e747c25959932209-db/s75x75_c1/48caf76493c6a6f940009ca378369653578265ff.gifv">  
 <div align="left">
 
-<sub> $\texttt{\color{#FDB1C6} ‎‎  ‎‎ any prns , kin names are okay too }$ 
+<sub> $\texttt{\color{#FDB1C6} ‎‎  ‎‎ any prns , 16 yo }$ 
 
 
   ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎    ‎  ‎  ‎   ‎  ‎  ‎ ˖Ი𐑼⋆
