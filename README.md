@@ -57,7 +57,7 @@
 <div align="right"> 
 <div align="right">
 
-[straw](https://ttto.straw.page/)‎‎    ‎  $\texttt{\color{#FDDAEA}⸝⸝‎‎}$ [READ B4U INT](https://rentry.co/seabiscuits)‎‎    ‎  $\texttt{\color{#FDDAEA}⸝⸝‎‎}$ ‎  [prns](https://en.pronouns.page/@t.o.p) ‎
+$\texttt{\color{#FDDAEA}⸝⸝‎‎}$ [read b4u int](https://another-dimension.straw.page/)‎‎    ‎  $\texttt{\color{#FDDAEA}⸝⸝‎‎}$ ‎  [prns](https://en.pronouns.page/@t.o.p) ‎
 
 
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=kingsmanknight&redirect=true">
