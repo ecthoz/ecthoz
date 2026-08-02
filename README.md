@@ -45,8 +45,6 @@
  ㅤㅤㅤ
  ㅤㅤㅤ
  ㅤㅤㅤ
- ㅤㅤㅤ
- ㅤㅤㅤ
 <details closed>
   <summary>  ${{\color{#f9f0b1} Blinkies}}$</summary>
   
