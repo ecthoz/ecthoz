@@ -41,9 +41,6 @@
 <sub> any pronouns , 6teen ('09)  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ c+h and w2i encouraged
 
 <sub> i luv [bones](https://github.com/killbones) <img src="https://64.media.tumblr.com/6a86293a7a46e8992740ded0b1ffb0b7/344137cd87435dc4-1b/s100x200/e61182dca3e4bf9100bcfabc5ef2c07c36cacb07.gifv" align="center" width="50px" > <img src="https://files.catbox.moe/vrk26l.png" align="center" width="500px" height="500" >
-
- ㅤㅤㅤ
- ㅤㅤㅤ
  ㅤㅤㅤ
 <details closed>
   <summary>  ${{\color{#f9f0b1} Blinkies}}$</summary>
