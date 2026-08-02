@@ -51,7 +51,7 @@
 sloooowly aadding more
   
 <img src="https://64.media.tumblr.com/9f223bfcd46ca8b65f71cb221d52d448/31ec50e3915b4208-88/s100x200/a0bd50b93124df02deb64901f4664f7881e7ae48.gifv" 
- align="right" width="100px"> 
+ align="right" width="200px"> 
 <img src="https://64.media.tumblr.com/d3e9da4bf128a30c83f73dceaabd54e6/3c74d06b377fdc9b-9b/s250x400/a7e1fcb1424dcf884adb3ec3f21fec51211ee471.gifv" align="right" width="200px">  <img src="https://64.media.tumblr.com/ea563d51e22f624a4d1972286d972273/f02a1cb68b17106a-67/s250x400/aad9287d55600ceb6e7e4872329b9335e344ac6d.pnj" align="right" width="200px">
 <img src="https://64.media.tumblr.com/93cefa5803118ac61ff87493fb7ea6a4/b0312ff9d0c62524-6a/s250x400/c592c596873ea254febeb99644841919f72d1105.gifv" align="right" width="200px">
 <img src="https://64.media.tumblr.com/1e0753aca743e2996f650680e7ca3ab6/c6c0d41d8a286cfd-da/s250x400/8d6b4e30a7a230c75953e4a79d1d17e88269962e.jpg" align="right" width="200px">  
