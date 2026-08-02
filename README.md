@@ -47,6 +47,8 @@
  ㅤㅤㅤ
 <details closed>
   <summary>  ${{\color{#f9f0b1} Blinkies}}$</summary>
+
+sloooowly aadding more
   
 <img src="https://64.media.tumblr.com/9f223bfcd46ca8b65f71cb221d52d448/31ec50e3915b4208-88/s100x200/a0bd50b93124df02deb64901f4664f7881e7ae48.gifv" 
  align="right" width="100px"> 
