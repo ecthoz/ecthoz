@@ -52,7 +52,7 @@
  ㅤㅤ
  
 <details closed>
-  <summary>  ${{\color{#f9f0b1} Blinkies}}$</summary>
+  <summary>  ${{\color{#f9f0b1} Me}}$</summary>
   
 <img src="https://64.media.tumblr.com/09bceaca800953efb197a285e5a0515e/34aa15f0a4a740ea-62/s500x750/2ca2d5aff761a32d4ce90600191ee16c8555999c.pnj" align="right" width="100px"> 
 <img src="https://64.media.tumblr.com/c2c4dee0c01056c06de6c449ecc16586/ca53f3881d319fc8-d2/s100x200/1ab6cb97e846b8b2a64fc3f0fec46ed363adb257.gifv" align="right" width="100px"> 
@@ -63,7 +63,8 @@
 <img src="https://64.media.tumblr.com/9e13890085fe512988f0a5db990ca7dc/851a1ef7d7001340-7e/s100x200/e7177411120b8cfc1b7e0ad0903621d82564ffa2.gifv" align="right" width="100px"> 
 <img src="https://64.media.tumblr.com/d3e9da4bf128a30c83f73dceaabd54e6/3c74d06b377fdc9b-9b/s250x400/a7e1fcb1424dcf884adb3ec3f21fec51211ee471.gifv" align="right" width="100px"> 
 
--
+ ㅤㅤ
+  ㅤㅤ
 
 <img src="https://64.media.tumblr.com/bed05ebcfad89395a46b02dc42bafedf/0588afef3283fbc0-a3/s250x400/e3aa2763b9600cef5b898c7d3d72a604470832fc.gifv" align="right" width="150px">
 <img src="https://64.media.tumblr.com/93cefa5803118ac61ff87493fb7ea6a4/b0312ff9d0c62524-6a/s250x400/c592c596873ea254febeb99644841919f72d1105.gifv" align="right" width="150px">
