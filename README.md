@@ -11,7 +11,7 @@
 ㅤㅤㅤ
 ㅤㅤㅤ
 ㅤㅤㅤ
-<img align="right" width="150" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=red&label=astronauts">
+<img align="right" width="150" alt="hellooo" src="https://komarev.com/ghpvc/?username=ecthoz&color=red&label=moons">
 
 
 <div align="left">
