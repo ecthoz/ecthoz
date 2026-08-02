@@ -43,7 +43,7 @@
 ㅤㅤ
 ㅤㅤㅤ
 ㅤㅤ
-<sub> i love [bones](https://github.com/killbones) <img src="https://64.media.tumblr.com/6a86293a7a46e8992740ded0b1ffb0b7/344137cd87435dc4-1b/s100x200/e61182dca3e4bf9100bcfabc5ef2c07c36cacb07.gifv" align="center" width="50px" > <img src="https://files.catbox.moe/at8ll1.png" align="right" width="100px" > <img src="https://files.catbox.moe/vrk26l.png" align="center" width="500px"> becho 4ever 
+<sub> i love [bones](https://github.com/killbones) <img src="https://64.media.tumblr.com/6a86293a7a46e8992740ded0b1ffb0b7/344137cd87435dc4-1b/s100x200/e61182dca3e4bf9100bcfabc5ef2c07c36cacb07.gifv" align="center" width="50px" > <img src="https://files.catbox.moe/at8ll1.png" align="center" width="100px" > **becho 4ever**  <img src="https://files.catbox.moe/vrk26l.png" align="center" width="500px"> 
  ㅤㅤㅤ
 <details closed>
   <summary>  ${{\color{#f9f0b1} Blinkies}}$</summary>
