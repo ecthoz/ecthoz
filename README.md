@@ -26,7 +26,7 @@
  ㅤㅤㅤ
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=18&duration=3300&pause=200&color=f9f0b1&center=true&width=435&height=28&lines=Looks+like+the+stars+won't+shine+much+longer...;Give+me+your+hand!+WE'RE+RUNNING+OUT+OF+TIME!;Oh,+oh,+oh,+oh,+oh,+oh,+oh,+oh,+oh.;Aren't+you+excited+now?;I+can+see+the+shining+moon+above;O.+M.+G.!!!+Stay+round+and+round;P.+R.+E.+T.+E.+N.+D.+to+be+mad...;I+don't+really+care+now!" align="center" alt="Typing SVG" width="370px"/></a> 
 
- ㅤㅤㅤ [*strawpage*](https://another-dimension.straw.page/) ㅤㅤㅤ [*pronouns*](https://en.pronouns.page/@t.o.p) ㅤㅤㅤ [*spam account*](https://github.com/70RD)
+ ㅤㅤㅤㅤ ㅤ [*strawpage*](https://another-dimension.straw.page/) ㅤㅤㅤ [*pronouns*](https://en.pronouns.page/@t.o.p) ㅤㅤㅤ 
 
 
 <p align="center">
